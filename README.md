@@ -1,4 +1,4 @@
-**Building Surveyors check list – House Purchase Survey**
+# Building Surveyors check list – House Purchase Survey
 
 Planning, Listed Building Consents, Building Control Consents – consider for any notable extensions or alterations to the building.
 
